@@ -1,0 +1,1 @@
+# Akilli-Ag-Gecidi--Smart-Gateway--Buffer-Tasima-Analizoru-
